@@ -1,3 +1,4 @@
+
 ### Bem vindo ao meu perfil! 💫
 Meu nome é Eloá Yetika
 
@@ -9,7 +10,7 @@ Meu nome é Eloá Yetika
 
 00001107349977sp@al.educacao.sp.gov.br
 
-###➰➰
+
 !![image](https://github.com/carnotauroazul/carnotauroazul/assets/168490987/91c92b26-88fa-4388-8997-2c1792a4fa61)
 [](link)
 
