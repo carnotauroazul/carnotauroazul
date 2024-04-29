@@ -9,7 +9,10 @@ Meu nome é Eloá Yetika
 
 00001107349977sp@al.educacao.sp.gov.br
 
-![https://i.pinimg.com/originals/03/80/19/0380195ac5aa62eca14b4361eb30189e.gif](link)
+###➰➰
+!![image](https://github.com/carnotauroazul/carnotauroazul/assets/168490987/91c92b26-88fa-4388-8997-2c1792a4fa61)
+[](link)
+
 
 <!--
 
